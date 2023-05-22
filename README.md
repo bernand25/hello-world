@@ -1,7 +1,52 @@
-# hello-world
-team se
-Bernand Trianda Firmansyah - 2502022231
-Muhammad Kynan Taffyasa - 2502016462
-Jansen Chandra - 2502008870
-Markus Jonathan - 2540127641
-Nicholas Eka Putra-2502022345
+無敵の笑顔で荒らすメディア
+知りたいその秘密ミステリアス
+抜けてるとこさえ彼女のエリア
+完璧で嘘つきな君は
+天才的なアイドル様
+
+(You're my savior)
+(You're my saving grace)
+
+今日何食べた？
+好きな本は？
+遊びに行くならどこに行くの？
+何も食べてない
+それは内緒
+何を聞かれても
+のらりくらり
+
+そう淡々と
+だけど燦々と
+見えそうで見えない秘密は蜜の味
+あれもないないない
+これもないないない
+好きなタイプは？
+相手は？
+さあ答えて
+
+「誰かを好きになること
+なんて私分からなくてさ」
+嘘か本当か知り得ない
+そんな言葉に
+また一人堕ちる
+また好きにさせる
+
+誰もが目を奪われていく
+君は完璧で究極のアイドル
+金輪際現れない
+一番星の生まれ変わり
+
+その笑顔で
+愛してるで
+誰も彼も虜にしていく
+その瞳が
+その言葉が
+嘘でもそれは
+完全なアイ
+
+(You're my savior)
+(My true savior)
+(My saving grace)
+
+(I'm with you forever)
+(By your side, forever)
